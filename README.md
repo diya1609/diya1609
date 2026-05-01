@@ -9,3 +9,4 @@
 - 😄 Pronouns: she/her💁🏻‍♀️
 - ⚡ Fun fact: I love burgers🍔
 
+<img width="1536" height="1024" alt="Image" src="https://github.com/user-attachments/assets/1d257364-05f5-4d85-9519-9e6d0d62217f" />
